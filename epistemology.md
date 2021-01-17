@@ -6,3 +6,5 @@
 6. Кант - ноумен, вещь в себе
 7. Определения
 8. Схемы
+
+https://iphlib.ru/library/collection/newphilenc/document/HASH0186d364ac6fab3def4e2d86
